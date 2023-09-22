@@ -1,1 +1,5 @@
-# Dom
+- 👋 Hi, I’m @dominake1
+- 👀 I’m interested in to learn networking 
+- 🌱 I’m currently learning git
+- 💞️ I’m looking to collaborate on a Company 
+- 📫 How to reach me @21-33877@g.batstate-u.edu.ph
